@@ -6,7 +6,7 @@ Vous ne vous rappelez plus comment créer le journal ou le modifier? [Ce tutorie
 ## Pourquoi j'ai choisi l'intégration multimédia
 Expliquer en 5 à 10 lignes ce qui vous intéresse en TIM. Parlez de ce qui vous a fait choisir ce programme. Quel cours vous motive en particulier? Est-ce que vous avez déjà en tête un métier que vous aimeriez faire grâce à la formation? Insérez dans votre texte un mot en gras, un emoji et une liste à point. 
 
-Ce qui m'interesse dans le programme TIM cest surtout le coté creatif et artistic. l'animation et le video editing ma toujour interesser depuis un jeune age et je trouver sa interessant d'explorer se domain plus loin. J'aime beaucoup illustration numerique, car .POur le moment je nest pas vraiment d'idee sur le metier que je veut faire.
+Ce qui m'interesse dans le programme TIM cest surtout le coté creatif et artistic. l'animation et le video editing ma toujour interesser depuis un jeune age et je trouver sa interessant d'explorer se domain plus loin. J'aime beaucoup illustration numerique, car sa me permet de montrer mes talent artistic et comment utiliser Photoshop. qui est en programme que je nest jamais utiliser.Pour le moment je nest pas vraiment d'idee sur le metier que je veut faire.
 
 
 
