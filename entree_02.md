@@ -23,6 +23,6 @@ Depuis se jour j'ai vraiment aimer la relation entre4 les deux personnages et le
 Cette oeuvre m'inspire grace au different ending possible, cela inspire mon approches narratives et de considerer different fin possible a la place de rester sur une seul idee.
 Les themes sociaux aussi qui sont aborder dedans comme la discrimination sont tres actuel, mais son tres bien representer.
 
-### Lien 5 
-Expliquer pourquoi vous avez choisi ce lien. 
+### (Samdoesarts) https://www.instagram.com/samdoesarts/
+Ce nest pas vraiment une oeuvre mais plutot un artiste qui m'inspire enormement. Il ma motiver a refaire de lart et ma inspirer avec cest tres belle illustration.
 
