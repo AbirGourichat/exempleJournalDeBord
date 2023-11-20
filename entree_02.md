@@ -19,8 +19,9 @@ l'oeuvre The last guardian est un oeuvre qui ma inspirer car cest un jeux video 
 Sa met en scene une relation entre un petit garcon et un animal qui sapelle Trico. Je nest pas jouer au jeux personellement mais jai regarder un gameplay quand jetait au primaire. 
 Depuis se jour j'ai vraiment aimer la relation entre4 les deux personnages et le designe graphique du jeux.
 
-### Lien 4 
-Expliquer pourquoi vous avez choisi ce lien. 
+### ( Detroit become humain) https://store.steampowered.com/agecheck/app/1222140/
+Cette oeuvre m'inspire grace au different ending possible, cela inspire mon approches narratives et de considerer different fin possible a la place de rester sur une seul idee.
+Les themes sociaux aussi qui sont aborder dedans comme la discrimination sont tres actuel, mais son tres bien representer.
 
 ### Lien 5 
 Expliquer pourquoi vous avez choisi ce lien. 
