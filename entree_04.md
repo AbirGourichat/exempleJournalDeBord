@@ -19,7 +19,8 @@ Leur taches enregistrers , editer , mixer des son pour des jeux video, film et v
 
 Taches programmer puis faire les conception des sites web avec des languages informatique. Qualier savoir resoudre des problemes et la patience. Tout comme le designer web ils le faire a la maison ou des entreprises.Point interresant pouvoir utiliser cest connaissance pour creer cest propre site web, moins interessant que juste em mettant une virgule a la place d'un point sa peut tout faire beug et te faire rager (souffrance).
 
-### Emploi 5 - Identification
-4 à 5 lignes
+### Emploi 5 - Animateur 
 
+Tache faire des animation 2d , 3d au melanger pour faire des project variers. Qualiter la creativiter artistique/ visuel et savoir comment le progrmme fonctionne. D'habitude il se retrouve dans des studios de petites ou grandes entreprise, mais tu peux le faire chez toi.
+Point interessant voir ton project venir en vie ,prendre forme, moins interresant la patience car ses peut prendre du temps.
 
