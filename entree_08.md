@@ -5,7 +5,7 @@ Durée: 8 à 10 minutes
 ### Résumer votre projet en une phrase
 Résumer le projet en une phrase concise.  
 
-Sa va etre une histoire d'un combattant qui et a la recherche du dernier dragon,pour ramener la paix.
+Sa va etre une histoire d'un bebe dragon qui atterrie dans une maison dun vieux villagois, et il decide de le ramener a sa mere dragon.
 
 ### Moodboard
 Montrer nous l'allure visuelle et sonore qu'aura votre projet à l'aide d'un moodboard, de maquettes ou de croquis. 
