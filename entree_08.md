@@ -10,7 +10,10 @@ Sa va etre une histoire d'un combattant qui et a la recherche du dernier dragon,
 ### Moodboard
 Montrer nous l'allure visuelle et sonore qu'aura votre projet à l'aide d'un moodboard, de maquettes ou de croquis. 
 
-Pour laspect sonore se serait une music plutot fantaisic realxante avec le bruit de l'herbre et du vent. En mode une beau nature.
+Pour laspect sonore se serait une music plutot fantaisic relaxante avec le bruit de l'herbre et du vent. En mode une beau nature.
+
+
+![IMG_0304](https://github.com/AbirGourichat/exempleJournalDeBord/assets/143745199/9c226495-4533-4400-92ab-78e769592005)
 
 
 
