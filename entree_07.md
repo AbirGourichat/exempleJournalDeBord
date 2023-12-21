@@ -11,10 +11,16 @@ Jai trouver la conferance tres instructif, surtout pour montrer le processus pou
 ### Clarté de la conférence (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la clarté de la conférence? Est-ce que les idées étaient claires et concise?
 
+Oui, le powerpoint etait bien organizer et permetter au gens qui sont plus visuel de comprendre. Aussi la separation des etape en petit fragment permetter de mieux comprendre le concept de se que lon devait faire sans se sentir accablee.
+
 ### Structure de la conférence (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la clarté de la conférence? Est-ce que le développement était logique?
 
+je veux dire elle nous a montrer comment en devait commencer un project et comment celle ci devait se terminer.Donc, je dirait que oui.
+
 ### Qualité visuelle (Entre 1 et 2 lignes)
 Comment avez-vous trouvé la qualité visuelle de la conférence?Est-ce que l'esthétisme était de qualité?
+
+Il y avait pas énormément de couleurs ce qui était qui donnait un aspect plus professionnel. on pouvait voir il y avait  une palette de couleur respectées .
 
 
